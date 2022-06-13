@@ -1,1 +1,1 @@
-Bright Strin6s
+My God am damm stressed out
